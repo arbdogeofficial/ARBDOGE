@@ -1,5 +1,5 @@
 # Social Links
 
-Telegram: [https://t.me/](https://t.me/BabyARBtoken)ARBDOGE
+Telegram：[https://t.me/Arbitrumdogeofficial](https://t.me/Arbitrumdogeofficial)
 
-LinkT
+Twitter：[https://twitter.com/arbdogeofficia1](https://twitter.com/arbdogeofficia1)
