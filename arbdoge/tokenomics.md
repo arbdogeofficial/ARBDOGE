@@ -8,8 +8,9 @@
 
 Tax Distribution
 
-* Auto-Rewards 3%
-* Marketing & Development 2%
+💹3 % $ARB Rewards \
+♻️1% added liquidity\
+⚙️1% marketing wallet
 
 \
 &#x20;
